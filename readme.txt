@@ -3,4 +3,4 @@ davbhu ksfn nvj ifqnv oi f
 vhefwlbrtfjk f
 bvrhj enr1
 jfvoemfkvbmfeobpvf
-Creating a new branch is quick & Simple.
+Creating a new branch is quick & simple.
